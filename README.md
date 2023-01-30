@@ -1,4 +1,4 @@
-Mangueiras Brasil projeto de E-Commerce na seguimento de Casa&Jardim
+Mangueiras Brasil projeto de E-Commerce na segmento de Casa&Jardim
 
 link para o site: Mangueiras Brasil "https://mangueirasbrasil.lojavirtualnuvem.com.br/"
 
